@@ -1,0 +1,4 @@
+- Hi. I’m @ChemPlayer. I have a youtube channel (https://www.youtube.com/channel/UCAHk1QKRj6DpjQzC0wySDsw)
+- 👀 I’m interested in video games, engineering, rocketry and coding.
+- 🌱 I’m currently learning how to make HTML websites.
+- 📫 How to reach me (maciejchemplay@gmail.com)
